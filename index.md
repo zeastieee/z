@@ -7,9 +7,13 @@ Here you can find glitches on games, hacks, tutorials, programs and way more!
 ### My Socials
 
 [🎶 TikTok 🎶](https://tiktok.com/@wi.ps)
+
 ###
+
 [📸 Instgram 📸](https://www.instagram.com/g59.nico/)
+
 ###
+
 [👻 Snapchat 👻](https://www.snapchat.com/add/wi.ps)
 
 
