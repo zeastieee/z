@@ -10,7 +10,7 @@ Here you can find glitches on games, hacks, tutorials, programs and way more!
 
 ###
 
-[📸 Instgram 📸](https://www.instagram.com/g59.nico/)
+[📸 Instagram 📸](https://www.instagram.com/g59.nico/)
 
 ###
 
