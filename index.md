@@ -1,25 +1,19 @@
-## zeastie
+## zst
 
-Welcome!
-
-Here you can find glitches on games, hacks, tutorials, programs and way more!
+lol
 
 ### My Socials
 
-[🎶 TikTok 🎶](https://tiktok.com/@wi.ps)
+[🎶 TikTok 🎶](https://tiktok.com/@covets)
 [📸 Instagram 📸](https://www.instagram.com/g59.nico/)
 [👻 Snapchat 👻](https://www.snapchat.com/add/wi.ps)
+[🛒 Shop 🛒](https://sellix.io/zst)
 
 
-### DB leaks 
-- NOTE: These are not leaked by me I found these online.
+### About
 
-[🌙 Lunar GTA](https://www.lunarmenu.com/database.html)
-
-### GTA 5 GLITCHES
-- WARNING: Money glitches can get you Money Wiped.
-
-[Money Glitch](https://www.youtube.com/watch?v=lPSVLzbgt7Q)
+-- sup bitch my name is zst or zeastie and i like me- i mean girls oops
+-- buy from my store or gay
 
 
 
