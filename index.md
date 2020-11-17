@@ -11,9 +11,7 @@ lol
 
 
 ### About
-
--- sup bitch my name is zst or zeastie and i like me- i mean girls oops
--- buy from my store or gay
+sup bitch my name is zst or zeastie and i like me- i mean girls oopsbuy from my store or gay
 
 
 
